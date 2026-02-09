@@ -1,0 +1,1 @@
+Robin es el nombre de varios superhéroes que aparecen en los cómics estadounidenses publicados por DC Comics. La versión original del personaje fue creada por Bob Kane, Bill Finger y Jerry Robinson,[1]​[2]​ para servir como contraparte menor del superhéroe Batman.
